@@ -1,0 +1,1 @@
+# Projeto_Gestao_Configuracao_2026
